@@ -6,3 +6,7 @@ I've worked with python and a little bit of fortran, but right now I'm learning 
 I'm mostly interested in frontend because I like to make things look beautiful and cute.
 
 My interest:
+  <3 frontend
+  <3 Taylor Swift
+  <3 Baking 
+  <3 physics
